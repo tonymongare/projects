@@ -1,1 +1,1 @@
-A simple porfolio highliggting my experience, education and projects
+A simple porfolio highlighting my experience, education and projects
